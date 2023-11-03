@@ -1,0 +1,1 @@
+La résidence tentaculaire de beaucoup de l’élite [[Dimir]], des parties de Voilenuit chevauchent le Dixième sous terre. Un vaste système de cavernes naturelles abrite de hautes demeures fortifiées et des cryptes enfoncées qui ont de grands motifs sinistres. Les spectres patrouilleurs et autres morts-vivants incorporels rendent difficile l’entrée des indésirables.

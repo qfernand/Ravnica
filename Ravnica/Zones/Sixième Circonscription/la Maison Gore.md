@@ -1,0 +1,1 @@
+Un club de [[Rakdos]] appelé la Maison Gore, dirigé par un viashino (peuple lézard) nommé Nyoser, occupe une usine désaffectée dans l’extrémité sud du Quartier de fusion - et abrite également l’entrée principale du vestibule du démon, la voie d’escalier vers [[Rix Maadi]].

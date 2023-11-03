@@ -1,0 +1,3 @@
+Les éboulis au nord est un terrain désert rempli de ruines, de bâtiments éventrés, et de rues infestées de débris. Mis à part les clans [[Gruul]], les seuls citoyens qui vivent dans le quartier sont ceux qui sont trop têtus pour déménager. Les Gruul partagent l’espace avec des bêtes féroces, des élémentaires et d’autres monstres. 
+
+Leur siège de guilde, [[Skarrg]], se trouve plus loin au nord des ruines.

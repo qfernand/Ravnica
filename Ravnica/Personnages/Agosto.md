@@ -1,0 +1,2 @@
+Agent [[Azorius]], Agosto à la vie sauve uniquement grâce à [[Grimm]], lorsque celui ci a eu la gentillesse de le guider à travers les tunnels golgari. 
+Depuis, Agosto n'a certainement pas oublié sa dette et compte bien rendre la pareille quand l'occasion se présentera

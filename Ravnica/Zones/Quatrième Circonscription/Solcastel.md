@@ -1,0 +1,1 @@
+Siège du pouvoir de la Légion de [[Boros]], la salle de guilde connue sous le nom de Solcastel est une structure imposante qui sert de forteresse, de caserne et de centre spirituel. Elle est largement considérée comme imprenable et sert de rappel aux attaquants du nord de la force de la résolution de Boros.

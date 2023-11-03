@@ -1,0 +1,1 @@
+Les meilleures discothèques et restaurants, dont la plupart sont gérés par  [[Orzhov]], sont dans ce quartier. Il y a peu de résidents permanents sur la Place Ouest, à part les très riches qui vivent dans des maisons spacieuses, luxueuses et à plusieurs niveaux. 

@@ -1,0 +1,1 @@
+Le quartier entre Solcastel et Nivix est rempli de structures renforcées qui servent d’appartements et de magasins à faible loyer. Ceux qui vivent dans le Rempart sont principalement des travailleurs ou des professionnels qui voient l’opportunité de soutenir la garnison de Boros.

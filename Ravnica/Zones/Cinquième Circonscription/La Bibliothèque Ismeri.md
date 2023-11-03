@@ -1,0 +1,6 @@
+
+L’une des plus grandes bibliothèques de Ravnica, la bibliothèque d’Ismeri est ouverte à tous les citoyens à toute heure. Des centaines de milliers de livres couvrant tous les sujets imaginables se trouvent ici. C'est est également l’un des centres de communication de Dimir. Des messages secrets sont cachés dans ses livres par une variété de méthodes magiques et mondaines. Les agents [[Dimir]] pourraient devoir rassembler des fragments de messages cachés dans plusieurs documents différents, par exemple, pour trouver leurs prochaines tâches ou cibles. Des codes complexes et les salles magiques protègent d’autres secrets.
+
+Le hall d'entrée de la bibliothèque donne sur un large pupitre en bois derrière lequel se tient Prisma, un Vedalken à la mine impatiente et portant de petites lunettes rondes.
+
+La Bibliothèque Ismeri est un dédale d'étagères et de couloirs, d'alcôves et de bureaux. Il est difficile de s'y repérer, d'autant plus que les salles se réarrangent sans cesse par des moyens magiques

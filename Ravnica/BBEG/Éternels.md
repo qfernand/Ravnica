@@ -1,0 +1,1 @@
+Armée de morts-vivants issus d'Amonkhet. [[Nicol Bolas]] compte les manipuler par l'intermédiaire de [[Liliana]] afin de moissonner toutes les étincelles sur Ravnica.

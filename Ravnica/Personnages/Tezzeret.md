@@ -1,0 +1,1 @@
+Artificer de génie, Tezzeret est manipulé par [[Nicol Bolas]] afin de construire le [[Pont Planaire]] qui permettra d'emmener les Immortels sur Ravnica.

@@ -1,0 +1,13 @@
+Le Gobelet d'Étain est une auberge spacieuse entièrement décorée en Art déco, style nain. Tous les meubles sont en bois sombre et massif, dans lesquels sont sculptés des motifs nains. Les murs en pierre claire sont composés de pierre de taille d'une orfèvrerie impressionnante de détails, source de l'expertise naine en le domaine. Les chaises ont une armature en airain très travaillée, et une assise en bois confortable. Des lanternes sont disposées a plusieurs endroits et produisent une lumière douce et tamisée. Aucune plante n'orne l'endroit.
+La tenancière, Grida, est une naine comme on en voit peu en Ravnica. Robuste, elle a la silhouette de ces anciens sportifs de haut niveau qui ont pris leur retraite depuis longtemps. Bon vivant, elle accueille les PJs avec familiarité mais peu de vulgarités. Derrière le comptoir est fièrement exposé un grand calice d'Argent cabossé. Si interrogée à son propos, Grida relate ses exploits en Outreterre et comment elle et son groupe se sont retrouvés avec pris au piège dans une grotte avec des oxydeurs. Suite à ce combat, ils n'avaient plus une seule arme ou armure en état de fonctionnement. Grida sortit alors ce gobelet d'argent de son sac, qu'ils avaient trouvé plus tôt dans les profondeurs. Elle tabassa les gobelins, araignées et autres bestioles qui leur barraient la route vers la surface avec ce gobelet, sauvant ainsi ses amis d'une mort certaine. Peu de temps après, elle décida de prendre sa retraite, estimant qu'elle avait accumulé assez de richesses pour enfin profiter de la vie au lieu de la risquer. Ses compagnons, cependant, aveuglé par la cupidité, sont tous morts en poursuivant plus de trésors.
+
+Dans cette auberge, le groupe peut prendre des chambres individuelles / duo pour 3po la nuit, ou un dortoir pour 5pa la nuit par personne. 
+
+Le repas est à 5 pa, et Grida se révèle être une excellente cuisinière : 
+- Soupe de poissons maison et rouille maison
+- Boeuf braisé mariné à la bière ainsi que patates au four
+- Fromages produits dans la 3e Circonscription
+- Compotée de fruits jaunes ou rouges suivant la saison
+
+En plus d'être très bonne cuisinière, Grida est aussi brasseuse. Elle vend sa bière artisanale 1pa la pinte, c'est une bière noire forte en goût. Elle vend également du vin pour 3pa la bouteille et des alcools forts pour 3pa le verre (remplit généreusement) / 1po la bouteille.
+Grida fait un cocktail, le Calice, qui est sucré bien qu'à base de whisky nain

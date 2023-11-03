@@ -1,0 +1,1 @@
+Membre d'[[Azorius]], frère d'arme de [[Tocher]], membre de la colonne Lyev

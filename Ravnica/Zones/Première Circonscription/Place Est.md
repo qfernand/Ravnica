@@ -1,0 +1,1 @@
+Ce quartier abrite de nombreux fonctionnaires, et il offre un logement temporaire pour les diplomates. Les maisons seigneuriales se mêlent aux appartements plus modestes. Le transport en voiture entre la Place Est et la [[Place du Dixième Quartier]] est facilement accessible, surtout le matin et le soir.

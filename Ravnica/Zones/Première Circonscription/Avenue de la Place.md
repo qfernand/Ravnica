@@ -1,0 +1,1 @@
+Elle connecte la [[Chambre du Pacte des Guildes]] et la[[Place du Dixième Quartier]]

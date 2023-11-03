@@ -1,0 +1,1 @@
+Vernadi du quartier de [[Hope]], elle n'a pas confiance en lui et le prend pour un agent Orzhov infiltré

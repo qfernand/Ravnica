@@ -1,0 +1,1 @@
+[[Zameck]], le siège de la guilde [[Simic]] se trouve ici

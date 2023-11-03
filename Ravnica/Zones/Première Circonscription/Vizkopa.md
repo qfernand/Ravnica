@@ -1,0 +1,1 @@
+La banque principale de Ravnica contrôlée par [[Orzhov]], et aussi l’endroit où les Orzhov fabriquent leurs pièces, la Banque Vizkopa est une immense structure opulente gardée par des gargouilles. Les esprits endettés à l’Orzhov flottent dans ses salles et autour de l’extérieur du bâtiment. 

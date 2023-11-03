@@ -1,0 +1,1 @@
+Futur Pacte des Guildes vivant, Jace Belleren est un hiéromancien extrêmement doué. Il a été formé à la dure par le gynosphinx [[Isperia]], dont il garde un ressentiment et une haine viscérale.

@@ -1,0 +1,1 @@
+Troll [[Golgari]], Azibo est loyal envers sa guilde et trouve en [[Grimm]] un ami précieux

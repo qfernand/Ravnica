@@ -1,0 +1,23 @@
+Revêtus d’une armure brillante et animés par un zèle juste, les soldats de la Légion de Boros prennent les armes contre la corruption et l’anarchie qui rongent l’âme de Ravnica. Combinant la force de la loi avec la force militaire pour l’appuyer, les Boros travaillent à forger Ravnica en une société juste, une communauté sûre et saine pour tous. De garnisons disciplinées dans toute la ville tentaculaire, des soldats solides ont été dépêchés pour se tenir ferme contre les raids Gruul, l’infiltration de Dimir, la corruption de Golgari, et l’influence subtile d’ennemis plus infâmes.
+
+L'archange Razia était la première maître de guilde de la Légion de Boros, qui fut créée pour servir d’armée permanente de Ravnica. Razia a été la maître de guilde pendant presque dix mille ans. La légende dit que tous les autres anges de Ravnica ont été créés à l’image de cette figure semi-divine, et sa mort a été dévastatrice pour la guilde. [[Aurelia]], l’actuelle guilde angélique, est la troisième à détenir ce titre.
+
+La Légion de Boros siège à [[Solcastel]].
+
+## Au sein de la Légion
+
+Les anges occupent le plus haut niveau de la hiérarchie de Boros, du maître de guilde [[Aurelia]] jusqu’aux armées de saints guerriers et conseillers dans les rôles de commandement. Leurs opinions et conseils sont profondément respectés dans la guilde, bien que les anges ne soient pas au-dessus des machinations de la politique mortelle. Les anges comprennent les Cheffes de Guerre stratégiques sages; les champions saints et les modèles de guerre connus sous le nom de Crinefeu; et les anges de la Force de Combat, qui forment la majorité des guerriers angéliques de la légion. 
+
+Du point de vue du soldat moyen de Boros, les anges incarnent les idéaux que les Boros chérissent. Peu de soldats mortels sont admis en présence des Cheffes de Guerre et d’autres anges puissants, mais les anges de la Force de Combat occupent le premier rang des troupes de la légion, et ils forment de solides amitiés avec les mortels dans de telles circonstances de vie ou de mort. Les paladins de Boros sont les membres les plus susceptibles de converser avec les anges et d’être chargés de mettre en œuvre leurs plans. 
+
+Les commandants de garnison qui transmettent les ordres des anges sont accessibles au soldat ordinaire. En plus de [[Solcastel]], les Boros maintiennent de plus petites garnisons dans tout le Dixième, au moins une dans chacun des six secteurs. 
+
+## Objectifs des Boros
+
+Partout où les criminels exploitent les autres, où les petits tyrans s’emparent du pouvoir, où la violence éclate et laisse la dévastation dans son sillage, les soldats Boros sont là à se battre pour redresser la situation. 
+
+La Légion de Boros est définie par la tension entre son objectif d’établir l’ordre et l’harmonie et le zèle ardent qui anime beaucoup de ses membres. La guilde représente la paix et la justice, qui ne peuvent être établies que par la primauté du droit. Sa position morale est fondamentalement bonne, car elle s’efforce de protéger les innocents et les impuissants contre l’oppression et l’exploitation. En même temps, les membres de la légion sont passionnés par leur quête de justice, poussés par leur juste colère à agir contre le mal et l’injustice. Ironiquement, cela signifie que les députés enfreignent parfois les règles qu’ils sont chargés de faire respecter et qu’ils se rattachent à l’esprit de la loi lorsque la lettre ne sert plus la justice. 
+
+Parce que le [[Pacte des Guildes vivant]]- la seule force sur Ravnica qui peut empêcher les guildes de se détruire- est maintenant incarné dans une seule personne peu fiable qui disparaît pendant des semaines ou des mois à la fois, la légion est dans un état de vigilance accrue. En cette période d’incertitude, les Boros sont constamment en alerte envers les menaces militaires. Ils travaillent à maintenir leurs fortifications pour s’assurer qu’ils ne sont pas envahis par les maraudeurs Gruul. La construction se poursuit sur de nouveaux bastions près des territoires de Gruul, mais en général les Boros se préparent à une menace militaire de la même manière qu’ils l’ont toujours fait- en mettant en service une armée plus forte.
+
+Les anges se préparent également à une menace plus subtile : le danger d’infiltration par la maison Dimir. Les Boros sont de plus en plus conscients de la possibilité que leur guilde soit minée de l’intérieur. La sécurité dans les bâtiments de garnison est vigilante, avec des anges qui surveillent les entrées en tout temps contre les espions. 

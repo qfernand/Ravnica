@@ -1,0 +1,1 @@
+Situé dans le [[Zonot Sept]], siège de la guilde [[Simic]]

@@ -1,0 +1,1 @@
+Dispositif créé par [[Ral Zarek]] qui permet d'attirer tous les planeswalkers sur un même plan lorsqu'il est allumé

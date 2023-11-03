@@ -1,0 +1,1 @@
+Le quartier nord de l’enceinte est couvert de grands arbres, qui sont tous éclipsés par Vitu-Ghazi. Pour accueillir une population croissante, les bâtiments sont situés autour des arbres et sur les branches plus grandes, en utilisant un réseau d’échelles et de passerelles de corde. 

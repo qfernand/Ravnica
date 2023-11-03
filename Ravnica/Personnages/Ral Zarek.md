@@ -1,0 +1,1 @@
+Membre de la Ligue d'[[Izzet]] et actuellement N° 2 de la Ligue, Ral rêve de renverser Niv-Mizzet afin de mettre enfin tout son potentiel à profit de la Ligue. Il se fait manipuler par [[Nicol Bolas]] afin de construire le [[Flambeau Interplanaire]].

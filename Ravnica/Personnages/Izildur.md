@@ -1,0 +1,1 @@
+Ancien ami de [[Hope]], Izildur a perdu ses yeux et un doigt à la main gauche lorsque des coupe-jarret Orzhov sont venus réclamer sa dette. Hope ayant abandonné Izildur à son sort, ce dernier lui tient une rancoeur tenace. Faisant partie d'[[Izzet]], Izildur travaille dur à l'élaboration d'armes visant à un jour, se venger des Orzhov pour de bon.

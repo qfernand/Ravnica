@@ -1,0 +1,1 @@
+Outil développé par [[Tezzeret]] pour [[Nicol Bolas]] afin de ramener les [[Éternels]] d'Amonkhet sur Ravnica

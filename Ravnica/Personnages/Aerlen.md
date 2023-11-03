@@ -1,0 +1,1 @@
+Entraîneur centaure [[Selesnya]], Aerlen avait été mandaté par le père d'[[Inacaryn]] afin de la former aux aspects militaires. Inacryn étant une brillante stratège, Aerlen croit qu'elle gpache ses talents et est furieux contre elle depuis qu'elle ne se consacre qu'aux arcanes seules.

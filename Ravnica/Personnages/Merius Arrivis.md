@@ -1,0 +1,2 @@
+Fils du ministre Joannes Arrivis, Merius est en train de rapidement gravir les échelons d'[[Orzhov]] uniquement grâce à sa bonne naissance. 
+Condescendant, lui et [[Orion]] se vouent une rivailité féroce. Il sait qu'[[Orion]] l'aurait supprimé depuis longtemps si son père n'était pas une figure aussi influente, et il ne peut pas supprimer Orion tant qu'Asariel projette son ombre protectrice sur lui. 

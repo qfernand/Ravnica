@@ -1,0 +1,1 @@
+Les rivières, les lacs et les océans s'enfoncent profondément sous la surface de Ravnica. Plusieurs d’entre eux se connectent aux habitats [[Simic]] connus sous le nom de zonots. Ils sont également utilisés comme voies de passage par les races aquatiques et les monstres.
